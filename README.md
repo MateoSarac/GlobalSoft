@@ -1,0 +1,1 @@
+Neki kratki opis vezan za ovu vježbu.
